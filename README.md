@@ -30,6 +30,12 @@
 输入指令，点击发送
 ![OBCSWVO}L 2~P)HBOVUJB83](https://github.com/x6888/One-Click-Writing/assets/113955041/80259798-a0ce-40b8-98ad-023d78ff42f4)
 
+4，三个功能
+"提示词撰写章纲(Chapter Outline for Writing Reminder Words)"
+"提示词一键成文（Prompt words written with one click）"
+"章纲一键成文（Chapter Outline One Key Writing）"
+![LSIVJZBEP~$B)@5EGDS%GFY](https://github.com/x6888/One-Click-Writing/assets/113955041/eed8d825-7a25-4cef-855f-4be707949397)
+
 
 **#捐赠**
 
