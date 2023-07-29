@@ -49,4 +49,4 @@
 **#捐赠**
 
 ![donate](https://github.com/x6888/One-Click-Writing/assets/113955041/92959457-748b-41c9-a1bf-fefa24b2430d)
-![}HO}T{)KWS KB_U84$2H$NB_tmb](https://github.com/x6888/One-Click-Writing/assets/113955041/c7682e28-da07-4075-8e17-0ff42973e14f)
+
