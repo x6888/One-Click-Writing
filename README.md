@@ -90,9 +90,5 @@
 ![LSIVJZBEP~$B)@5EGDS%GFY](https://github.com/x6888/One-Click-Writing/assets/113955041/eed8d825-7a25-4cef-855f-4be707949397)
 
 
-**#捐赠**
 
-
-![donate](https://github.com/x6888/One-Click-Writing/assets/113955041/92959457-748b-41c9-a1bf-fefa24b2430d)
-![donate1](https://github.com/x6888/One-Click-Writing/assets/113955041/0f43294a-7a38-402f-883d-3e47bf52493b)
 
